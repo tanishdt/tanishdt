@@ -2,7 +2,7 @@
 - 👀 I’m interested in Finance & Tech
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on AI & Finance Projects
-- 📫 How to reach me ? - Via Mail: thedt.tanish@gmail.com 
+- 📫 How to reach me ? - Via Mail: hello@tanish.digital 
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: There isnt one.
 
