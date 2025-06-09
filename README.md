@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @tanishdt
+- 👋 Hi, I’m Tanish
 - 👀 I’m interested in Finance & Tech
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on AI & Finance Projects
